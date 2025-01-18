@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @knogeek2
+- 🌱 I’m currently relearning VBA
+- 📫 How to reach me https://x.com/knogeek2
+- 😄 Pronouns: Don't/Care, for those that do, I'm a grandpa old boomer and father of an awesome son.
+- ⚡ Fun fact: Blogging for a decade at https://worldofwebb.net
