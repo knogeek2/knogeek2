@@ -5,7 +5,7 @@ I’m a writer — fiction, essays, cultural criticism, and the occasional techn
 I can code. I can fix hardware. I'd just rather not to unless the work is interesting.
 
 **Portfolio:** https://artsfirerva.com/skills.html  
-**Email:** alan@worldofwebb.net
+**Email:** alan@artsfirerva.com
 
 ---
 
