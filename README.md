@@ -2,7 +2,7 @@
 [![Contracting](https://img.shields.io/badge/Available-Contract%20Work-orange)](https://artsfirerva.com/skills.html)
 
 I’m a writer — fiction, essays, cultural criticism, and the occasional technical documentation.  
-I can code. I can fix hardware. I just prefer not to unless the work is interesting.
+I can code. I can fix hardware. I'd just rather not to unless the work is interesting.
 
 **Portfolio:** https://artsfirerva.com/skills.html  
 **Email:** alan@worldofwebb.net
