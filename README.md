@@ -28,7 +28,7 @@ I write fiction and essays that illustrate and influence the stories we tell abo
 🌱 Relearning VBA; teaching myself JavaScript and JSON  
 📫 https://x.com/wordfirerva  
 😄 Pronouns: Don’t / Care  
-⚡ Ten years of essays and experiments at https://worldofwebb.net
+⚡ Ten years of fiction and essays at https://worldofwebb.net
 
 ---
 
