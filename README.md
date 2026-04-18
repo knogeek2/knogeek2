@@ -22,13 +22,13 @@ And one other, secret rate: talk to me. We can work a deal.
 
 ## Who I Am
 
-👋 @knogeek2 — storyteller, cultural critic, and long‑time translator between humans and their machines.  
+👋 @knogeek2 — storyteller, essayist, and long‑time translator between humans and their machines.  
 I write fiction and essays that illustrate and influence the stories we tell about our lives.
 
 🌱 Relearning VBA; teaching myself JavaScript and JSON  
-📫 https://x.com/wordfirerva  
+📫 https://x.com/wordfirerva
 😄 Pronouns: Don’t / Care  
-⚡ Ten years of fiction and essays at https://worldofwebb.net
+⚡ Ten years of fiction and essays at https://worldofwebb.net -- Lies, Damned Lies, and Complaints About the News
 
 ---
 
