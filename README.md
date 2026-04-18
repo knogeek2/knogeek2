@@ -9,7 +9,7 @@ I can code. I can fix hardware. I just prefer not to unless the work is interest
 
 ---
 
-## My Labor Philosophy
+## My Labor Rates
 
 I have two rates:
 
